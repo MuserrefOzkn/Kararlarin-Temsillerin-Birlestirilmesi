@@ -1,0 +1,1 @@
+# Kararlarin-Temsillerin-Birlestirilmesi
